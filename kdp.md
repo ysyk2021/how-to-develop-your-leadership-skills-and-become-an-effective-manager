@@ -39,7 +39,6 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Workplace culture
 18. Innovation and creativity
 19. Leading remote teams
-20. Professional development.
-
+20. Professional development
 
 
