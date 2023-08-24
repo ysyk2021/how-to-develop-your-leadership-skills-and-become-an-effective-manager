@@ -1,5 +1,3 @@
-Chapter 7: Managing Performance and Providing Feedback
-======================================================
 
 As a leader, it's essential to manage the performance of your team members and provide constructive feedback to help them grow and develop. In this chapter, we'll explore the importance of managing performance and providing feedback as a leader, and strategies for doing so effectively.
 

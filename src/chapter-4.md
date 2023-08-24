@@ -1,4 +1,3 @@
-# Chapter 4: Communicating Effectively as a Leader
 
 Effective communication is a critical component of effective leadership. Leaders must be able to express their ideas clearly and concisely, listen actively to others, and build strong relationships with their team members. In this chapter, we will discuss the importance of effective communication as a leader, and provide techniques for communicating effectively with team members.
 

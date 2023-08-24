@@ -1,5 +1,3 @@
-Chapter 8: Fostering Innovation and Creativity
-==============================================
 
 As a leader, it's essential to foster innovation and creativity among your team members. In this chapter, we'll explore the importance of fostering innovation and creativity as a leader, and techniques for doing so effectively.
 

@@ -1,5 +1,3 @@
-Techniques for Communicating Effectively with Team Members
-============================================================================================================
 
 Effective communication is essential for leaders to achieve their goals and lead their team to success. In this chapter, we will explore techniques for communicating effectively with team members.
 

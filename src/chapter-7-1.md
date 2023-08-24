@@ -1,5 +1,3 @@
-Overview of Managing Performance and Providing Feedback as a Leader
-===========================================================================================================================
 
 As a leader and manager, managing performance and providing feedback is an important part of developing your team members and achieving success. In this chapter, we will provide an overview of managing performance and providing feedback.
 

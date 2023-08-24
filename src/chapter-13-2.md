@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-=====================================================================================================
 
 Developing your leadership skills and becoming an effective manager is a journey that requires ongoing learning and growth. In this chapter, we'll explore how to track your progress and celebrate your successes along the way.
 

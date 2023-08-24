@@ -1,5 +1,3 @@
-Overview of Balancing Priorities and Time Management as a Leader
-======================================================================================================================
 
 As a leader, you are responsible for managing multiple priorities and tasks. In this chapter, we will provide an overview of balancing priorities and time management as a leader.
 

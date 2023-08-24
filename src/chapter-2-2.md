@@ -1,5 +1,3 @@
-Benefits of Effective Leadership for Employees and the Organization
-==================================================================================================================
 
 Effective leadership is essential for the success of both employees and the organization as a whole. In this chapter, we'll explore some of the key benefits of effective leadership for employees and the organization.
 

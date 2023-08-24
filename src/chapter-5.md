@@ -1,5 +1,3 @@
-Chapter 5: Building Trust and Collaboration
-===========================================
 
 As a leader, it's essential to build trust and collaboration among your team members. In this chapter, we'll explore the importance of building trust and collaboration as a leader, and strategies for doing so effectively.
 

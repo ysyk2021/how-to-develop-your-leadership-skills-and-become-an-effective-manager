@@ -1,5 +1,3 @@
-Importance of Emotional Intelligence in Leadership
-=================================================================================================
 
 Emotional intelligence is a key skill for leaders and managers. In this chapter, we will explore the importance of emotional intelligence in leadership.
 

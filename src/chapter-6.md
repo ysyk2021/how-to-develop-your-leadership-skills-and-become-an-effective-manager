@@ -1,4 +1,3 @@
-# Chapter 6: Mentoring and Coaching Employees
 
 As a leader, one of your primary responsibilities is to develop the skills and potential of your team members. Mentoring and coaching are powerful tools for unlocking the full potential of employees. In this chapter, we will discuss the importance of mentoring and coaching employees as a leader, and provide techniques for mentoring and coaching employees to unlock their potential.
 

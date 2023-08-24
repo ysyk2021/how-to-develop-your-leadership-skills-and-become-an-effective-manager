@@ -1,5 +1,3 @@
-Chapter 2: Understanding Effective Leadership
-=============================================
 
 Effective leadership is critical for achieving success as a manager. In this chapter, we'll explore the definition of effective leadership and the benefits it provides to employees and organizations.
 

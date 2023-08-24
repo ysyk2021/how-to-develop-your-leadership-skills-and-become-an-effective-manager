@@ -1,5 +1,3 @@
-Overview of Leading Change and Adapting to Challenges as a Leader
-=======================================================================================================================
 
 As a leader, you must be able to navigate change and adapt to challenges in order to achieve success. In this chapter, we will provide an overview of leading change and adapting to challenges as a leader.
 

@@ -1,5 +1,3 @@
-The Importance of Developing Leadership Skills and Becoming an Effective Manager
-=========================================================================================================
 
 In today's fast-paced business world, effective leadership is essential for success. As a manager, you have the responsibility to guide your team towards achieving organizational goals and objectives. To do so, you need to develop strong leadership skills that will enable you to inspire and motivate your team members.
 

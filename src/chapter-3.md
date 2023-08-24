@@ -1,5 +1,3 @@
-Chapter 3: Developing a Vision and Strategy
-===========================================
 
 As a leader, it's essential to develop a vision and strategy that guides your organization towards success. In this chapter, we'll explore the importance of developing a vision and strategy as a leader, and strategies for doing so effectively.
 

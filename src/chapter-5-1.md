@@ -1,5 +1,3 @@
-Overview of Building Trust and Collaboration as a Leader
-=====================================================================================================
 
 Building trust and collaboration among team members is essential for creating a positive and productive work environment. In this chapter, we will provide an overview of building trust and collaboration as a leader.
 

@@ -1,4 +1,3 @@
-# Chapter 9: Leading Change and Adapting to Challenges
 
 Leaders must be able to navigate change and adapt to challenges in order to succeed. In this chapter, we will discuss an overview of leading change and adapting to challenges as a leader, and provide strategies for leading change and adapting to challenges in the workplace.
 

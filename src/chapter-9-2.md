@@ -1,5 +1,3 @@
-Strategies for Leading Change and Adapting to Challenges in the Workplace
-===============================================================================================================================
 
 As a leader, you must be able to navigate change and adapt to challenges in order to achieve success. In this chapter, we will explore strategies for leading change and adapting to challenges in the workplace.
 

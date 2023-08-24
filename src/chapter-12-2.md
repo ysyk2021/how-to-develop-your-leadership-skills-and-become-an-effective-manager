@@ -1,5 +1,3 @@
-Strategies for Overcoming these Obstacles
-=====================================================================================================
 
 Leadership development is an ongoing process that requires effort and commitment. However, there are common obstacles that can hinder leadership development. In this chapter, we will explore strategies for overcoming these obstacles.
 

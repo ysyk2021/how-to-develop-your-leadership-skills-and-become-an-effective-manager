@@ -1,5 +1,3 @@
-Definition of Effective Leadership
-=================================================================================
 
 Effective leadership is essential for success in today's business world. But what exactly does it mean to be an effective leader? In this chapter, we'll explore the definition of effective leadership and what it takes to become one.
 

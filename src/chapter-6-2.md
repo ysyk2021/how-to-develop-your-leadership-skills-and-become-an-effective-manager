@@ -1,5 +1,3 @@
-Techniques for Mentoring and Coaching Employees to Unlock Their Potential
-======================================================================================================================
 
 As a leader and manager, it is important to mentor and coach your employees to help them reach their full potential. In this chapter, we will explore techniques for mentoring and coaching employees.
 

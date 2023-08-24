@@ -1,5 +1,3 @@
-Techniques for Developing Emotional Intelligence as a Leader
-===========================================================================================================
 
 Emotional intelligence is a key skill for leaders and managers. In this chapter, we will explore the benefits of emotional intelligence and techniques for developing emotional intelligence as a leader.
 

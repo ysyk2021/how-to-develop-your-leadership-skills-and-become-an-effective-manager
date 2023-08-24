@@ -1,5 +1,3 @@
-Techniques for Fostering Innovation and Creativity Among Team Members
-=====================================================================================================================
 
 As a manager, one of your key responsibilities is to foster creativity and innovation within your team. In this chapter, we'll explore some techniques you can use to encourage your team members to think creatively and come up with innovative ideas.
 

@@ -1,5 +1,3 @@
-Importance of Effective Communication as a Leader
-===================================================================================================
 
 Effective communication is a crucial skill for leaders and managers. In this chapter, we will explore the importance of effective communication as a leader.
 

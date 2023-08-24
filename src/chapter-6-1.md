@@ -1,5 +1,3 @@
-Importance of Mentoring and Coaching Employees as a Leader
-=======================================================================================================
 
 As a leader and manager, mentoring and coaching employees is an important part of developing your team members and achieving success. In this chapter, we will explore the importance of mentoring and coaching employees.
 

@@ -1,4 +1,3 @@
-# Chapter 10: Developing Emotional Intelligence
 
 Emotional intelligence (EI) is the ability to recognize, understand, and manage our emotions and those of others. As a leader, developing emotional intelligence is critical to building strong relationships and facilitating effective communication within teams. In this chapter, we will discuss the importance of emotional intelligence in leadership and provide techniques for developing emotional intelligence as a leader.
 

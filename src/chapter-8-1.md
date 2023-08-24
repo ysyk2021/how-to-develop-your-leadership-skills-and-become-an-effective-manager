@@ -1,5 +1,3 @@
-Importance of Fostering Innovation and Creativity as a Leader
-=============================================================================================================
 
 Innovation and creativity are essential for the long-term success of any organization. As a leader, it's your responsibility to foster an environment that encourages and supports these qualities within your team members.
 

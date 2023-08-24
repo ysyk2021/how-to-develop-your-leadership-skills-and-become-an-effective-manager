@@ -1,5 +1,3 @@
-Chapter 13: Implementation Strategies for Lasting Change
-========================================================
 
 Developing your leadership skills and becoming an effective manager requires a commitment to ongoing learning and growth. In this chapter, we'll explore some implementation strategies you can use to create lasting change and achieve your goals.
 

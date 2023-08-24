@@ -1,5 +1,3 @@
-Strategies for Managing Performance and Providing Constructive Feedback to Employees
-============================================================================================================================================
 
 Managing performance and providing feedback are essential skills for leaders and managers. In this chapter, we will explore strategies for managing performance and providing constructive feedback to employees.
 

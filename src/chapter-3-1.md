@@ -1,5 +1,3 @@
-Overview of Developing a Vision and Strategy as a Leader
-=====================================================================================================
 
 Developing a vision and strategy is an essential skill for leaders and managers. In this chapter, we will provide an overview of developing a vision and strategy.
 

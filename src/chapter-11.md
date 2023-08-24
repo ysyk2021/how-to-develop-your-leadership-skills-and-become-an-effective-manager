@@ -1,4 +1,3 @@
-# Chapter 11: Balancing Priorities and Time Management
 
 As a leader, it can be challenging to balance competing priorities and manage your time effectively. However, mastering these skills is essential for achieving success as a manager. In this chapter, we will discuss an overview of balancing priorities and time management as a leader, and provide strategies for prioritizing tasks and managing time effectively.
 

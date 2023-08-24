@@ -1,5 +1,3 @@
-Strategies for Prioritizing Tasks and Managing Time Effectively
-=====================================================================================================================
 
 As a leader, you must be able to manage multiple priorities and tasks while also effectively managing your time. In this chapter, we will explore strategies for prioritizing tasks and managing time effectively.
 
